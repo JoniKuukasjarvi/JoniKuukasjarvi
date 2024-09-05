@@ -2,7 +2,7 @@
 
 **`IT-student with passion for cyber security`**
 
-I'm at the end of my IT-engineer studies and actively looking for different opportunities to finish my thesis, and get some real life experience with IT-field. I have four years of experience with different IT-related topics that I've learned with university plan or by tinkering with new topics by myself.
+I'm at the end of my IT-engineer studies and actively looking for different opportunities to finish my thesis, and get some real life experience with IT-field. I have four years of experience with different IT-related topics that I've learned with university of applied sciences study curricilum or by tinkering with new topics by myself.
 
 ---
 
